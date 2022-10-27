@@ -1,1 +1,1 @@
-Mi name's Jude and I'm currently a computer science student at Polytechnic University of the Philippines.
+I'm Jude and I'm a software engineer with a degree in computer science with a passion in coding with coffee.
